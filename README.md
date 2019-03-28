@@ -9,4 +9,4 @@ Other things I like:
 * skateboarding,
 * visual arts,
 * cool music that hurts people's ears,
-* chili.
+* chili _sin carne_.
