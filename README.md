@@ -8,5 +8,5 @@ Other things I like:
 * aliens,
 * skateboarding,
 * visual arts,
-* cool music that hurts people's ears,
+* cool music that hurts other people's ears,
 * chili _sin carne_.
